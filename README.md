@@ -1,1 +1,0 @@
-# chyntiatugas.github.io
